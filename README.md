@@ -1,3 +1,2 @@
 - 👋 Hi, I’m **litdclitus**
-- 👀 I’m interested in *learning something new*
 - 🌱 I’m currently learning *as much as possible*
